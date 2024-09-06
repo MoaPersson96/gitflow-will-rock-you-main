@@ -18,6 +18,8 @@ You got mud on your face, big disgrace
 Somebody better put you back into your place, do it!
 
 ## Chorus 2
+We will, we will rock you
+We will, we will rock you
 
 ## Verse 3
 
